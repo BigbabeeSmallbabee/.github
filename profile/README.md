@@ -6,10 +6,14 @@ I have not much to share right now, except, I am just starting. more details wil
 
 My name is Jay (Vijayasimha BR). I work as a full time freelance coding tutor. You can find out more about me, on my [github profile](https://github.com/Jay-study-nildana).
 
+primary announcements about the org, happen on my blog at medium. [read it here](https://medium.com/@vijayasimhabr/list/bigbabeesmallbabee-8071081f2eb1)
+
 Thanks.
 
-Jay
+Jay, 
+
 Bangalore.
+
 April 4th 2023
 
 --
